@@ -1,4 +1,4 @@
-### Hi everyone! My name is Myah Savage 👋
+### Hi everyone! My name is Myah Savage 👋🏽
 
 ### My Focus 🔍
 My primary focus is front-end development! My projects (linked below) have been reflections of my own interest and passions. With each, I maintain sleek modern designs to maintain a sense of ease throughout the user experience utlizing my creative lens. No matter how complex the applications, they will always be cohesive and user friendly.
